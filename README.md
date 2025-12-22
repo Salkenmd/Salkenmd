@@ -1,1 +1,1 @@
-I'm a dumb undergrad student.
+Just a retarded undergrad student (college freshman).
